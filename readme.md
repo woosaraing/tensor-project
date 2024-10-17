@@ -1,1 +1,1 @@
-성중이 바보
+woo love fuck up
